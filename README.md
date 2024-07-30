@@ -1,4 +1,4 @@
-### Hello there, I'm Gajjar Khushi! 👋
+### Hello there, I'm Gajjar Khushi! 
 
 
 ![Dark Simple and Modern Artificial Intelligence and Coding Youtube Thumbnail](https://github.com/khushimgajjar/khushimgajjar/assets/110166333/946b98ec-436e-49f6-881e-0ad758d6dc61)
